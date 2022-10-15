@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi  👋
 
 <!--
 **KAWATAAAAAA/KAWATAAAAAA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+
+歩くほどに踊るほどに
+
+ふざけながら じらしながら
+
+薔薇より美しい
+
+wa ああああ～  君は     変った （KAWATAAAAAA）
+
+
+
