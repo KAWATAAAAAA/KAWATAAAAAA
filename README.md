@@ -16,14 +16,9 @@ Here are some ideas to get you started:
 -->
 
 
+名称来自 布施明的《薔薇より美しい》
 
-歩くほどに踊るほどに
-
-ふざけながら じらしながら
-
-薔薇より美しい
-
-wa ああああ～  君は     変った （KAWATAAAAAA）
-
+喜欢吉他🎸，指弹、最近一年在玩电吉他，AC/DC，Led Zeppelin
+![alt vue](https://s1.ax1x.com/2023/01/19/pS8UbTA.png)
 
 
