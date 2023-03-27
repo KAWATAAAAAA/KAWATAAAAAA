@@ -16,12 +16,12 @@ Here are some ideas to get you started:
 -->
 
 
-名称来自 布施明的《薔薇より美しい》
-
-喜欢吉他🎸，指弹、最近一年在玩电吉他，AC/DC，Led Zeppelin
+my nickname comes from a Japanese singer 布施明（ふせ あきら）《薔薇より美しい》
 
 
-**祖师爷神像镇楼**
+
+
+**Grandmaster give me power祖师爷神像镇楼**
 
 ![alt vue](https://s1.ax1x.com/2023/01/19/pS8UbTA.png)
 
