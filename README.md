@@ -16,8 +16,6 @@ Here are some ideas to get you started:
 -->
 
 
-my nickname comes from a Japanese singer 布施明（ふせ あきら）《薔薇より美しい》
-
 
 
 
